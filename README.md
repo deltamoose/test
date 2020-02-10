@@ -1,2 +1,0 @@
-# deltamoose.github.io
- 
